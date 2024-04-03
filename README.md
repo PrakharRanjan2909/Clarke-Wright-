@@ -1,0 +1,8 @@
+![Screenshot 2024-04-04 002058](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/87601a08-b498-4d55-86ab-8844ece1dadd)
+![Screenshot 2024-04-04 002044](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/08347aa2-cd32-4136-923b-9b4ebf4bfe12)
+![Screenshot 2024-04-04 002034](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/5d5b04ef-e901-43e4-8d95-5b6f1a8f99f7)
+![Screenshot 2024-04-04 002026](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/06193975-e51d-474b-bc5e-64538706810b)
+![Screenshot 2024-04-04 002016](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/693d13b8-ff54-446f-b7fc-f262632d72ae)
+![Screenshot 2024-04-04 001956](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/7cff33ae-39a3-43ff-a566-8196e3e38607)
+![Screenshot 2024-04-04 001943](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/86f6747b-8ccb-411b-b62d-631535797223)
+![Screenshot 2024-04-04 001806](https://github.com/PrakharRanjan2909/Clarke-Wright-/assets/92312146/d3d40cb4-c2e3-450c-affc-a329ec081e28)
